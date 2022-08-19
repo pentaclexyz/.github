@@ -1,3 +1,3 @@
 ⭐ [pentacle.xyz](https://pentacle.xyz/)
 
-<img width="970" alt="image" src="https://user-images.githubusercontent.com/80323528/185581146-6168a170-1429-444d-bda9-9471ff1d2697.png">
+<img width="968" alt="image" src="https://user-images.githubusercontent.com/80323528/185581566-95a7c81a-6f20-4578-8402-864cb2fac990.png">
