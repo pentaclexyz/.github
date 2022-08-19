@@ -1,1 +1,1 @@
-⭐ https://pentacle.xyz/
+⭐ [pentacle.xyz](https://pentacle.xyz/)
